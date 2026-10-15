@@ -92,3 +92,19 @@ I'm always open to collaboration, new opportunities, and exciting projects!
 ⭐ **Thanks for visiting my profile!**
 
 *Building Digital Experiences. Growing Businesses.* 🚀
+
+---
+
+## 🌐 Connect With Smart Growth
+
+💼 [LinkedIn]([YOUR_LINKEDIN_URL](https://www.linkedin.com/in/smartgrowthagency))
+
+📸 [Instagram]([YOUR_INSTAGRAM_URL](https://www.instagram.com/smart_growth20))
+
+🌐 [Portifolio]([YOUR_EMAIL](https://muhammad-shayan1.github.io/SmartGrowth/))
+
+---
+
+### 🚀 Build • Develop • Grow
+
+**Let's turn your ideas into digital success!**
